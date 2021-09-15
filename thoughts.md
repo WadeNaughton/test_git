@@ -4,3 +4,4 @@
 2. Incorporate the new google searching methods that were taught
 1. my friend who has experience in this field guided me with some questions that I had
 Thoughts added
+thoughts added 2
